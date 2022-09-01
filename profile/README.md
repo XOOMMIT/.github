@@ -1,6 +1,6 @@
 ## Hi there 👋 Welcome @ XOOMMIT
 
-
+**Wanna be part of the team? email us with your request => contact@xoommit.com**
 
 <!--
 
